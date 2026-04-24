@@ -1,4 +1,4 @@
-# 📈 Yan Oliveira 
+# Yan Oliveira 
 
 **`Analista de dados`**
 
